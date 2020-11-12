@@ -10,4 +10,4 @@ View the live version: http://rosebaker.design/gen2.html
 
 ![circles and squares example image](http://rosebaker.design/lookhowlovely/lookhowlovely_001a.png)
 
-![circles and squares example image](http://rosebaker.design/lookhowlovely/lookhowlovely - 2020-08-27T092204.540.png)
+![circles and squares example image](http://rosebaker.design/lookhowlovely/lookhowlovelyy%20-y%202020-08-27T092204.540.png)
